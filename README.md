@@ -1,7 +1,7 @@
 # mini_CV
 
-![image](
 
+![IMAGE ORDI](https://github.com/Mary-walter/mini_CV/assets/137881650/efaeb32f-9b61-4261-ba22-ee010b51d8f0)
 
 [visiter mon compte linedin](www.linkedin.com/in/mary-mackalin-walter-nicholas-4b433a1b0)
 
