@@ -5,14 +5,14 @@
 
 [visiter mon compte linedin](www.linkedin.com/in/mary-mackalin-walter-nicholas-4b433a1b0)
 
-###**EXPÉRIENCE PROFESSIONNELLES**
+### **EXPÉRIENCE PROFESSIONNELLES**
 
 _CONSEILLÈRE RELATION CLIENTÈLE
 Appel entrants gestion de relation client sur CRM, accueil et renseigner, prospections des
 formations professionnelles, back-office, participer à la recrutement ets...
 2022 - CABINET DE RECRUTEMENT : WEETEL/ORATEL/KOAJOB ST-OUEN_
 
-###**Formations**
+### **Formations**
 
 Après un bac équivalent commerce obtenu au sri lanka j’ai travaillée pendant plus de 17 ans
 en France le metier de la vente et de la distribution.
@@ -26,7 +26,7 @@ distance” à l’AFPA Paris
 2020: Diplômée en théologie à la Courneuve
 
 
-###**AUTRES EXPERIENCES - BÉNÉVOLAT**
+### **AUTRES EXPERIENCES - BÉNÉVOLAT**
 
 _Depuis longtemps je suis bénévole dans les différentes associations: accompagner dans
 les démarches administratives, rédactions courriers, traduction, conseil, solidarité,
@@ -34,6 +34,6 @@ distribution des produits alimentaires, soutenir et accompagner des personnes en
 participer à des collectes de vêtements,de denrées alimentaire, enseigner cours de
 français ets..._
 
-###**CENTRES D’INTERÊT**
+### **CENTRES D’INTERÊT**
 
 _Cuisine, pâtisserie, la musique, chant ets..._
